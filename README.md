@@ -1,0 +1,1 @@
+- and awesome list of MJ quotes - https://www.inc.com/benjamin-p-hardy/23-michael-jordan-quotes-that-will-immediately-boost-your-confidence.html
