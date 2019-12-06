@@ -1,3 +1,11 @@
+# Inspirational Quotes
+![](quoteback.png)
+
+As a leader in my field I deal with and help other with the following areas. I love using quotes as examples to get myself and other motivated.
+We all deal with change in work and in our everyday lives. A lot of the time failure is a result of said change and I believe we should all welcome change because it gives us opportunity to fail and we can not succeed with out failing, in most cases ;)
+
+The following are quotes that help me deal with this aspect of life. Enjoy :)
+
 ## Failure
 - "The obstacles in the path become the path" - Jaro Tapal
 - "Keep failing!! Keep getting back up!! That is the only way to succeed. Do not allow yourself to be weighed down by ego and pretense. Let go of what you fear to loose and rise up!!" - Jaro Tapal
