@@ -10,6 +10,7 @@ The following are quotes that help me deal with this aspect of life. Enjoy :)
 ## Failure
 - "The obstacles in the path become the path" - Jaro Tapal
 - "Keep failing!! Keep getting back up!! That is the only way to succeed. Do not allow yourself to be weighed down by ego and pretense. Let go of what you fear to loose and rise up!!" - Jaro Tapal
+- “Grace means that all of your mistakes now serve a purpose, instead of serving shame.” — Mike Rusch
 - "The key to success is failure." - Michael Jordan
 - "I've missed more than 9,000 shots in my career. I've lost almost 300 games. Twenty-six times, I've been trusted to take the game winning shot and missed. I've failed over and over and over again in my life. And that is why I succeed." - Micahel Jordan
 - "I know fear is an obstacle for some people, but it is an illusion to me. Failure always made me try harder next time." - Micahel Jordan
@@ -22,15 +23,20 @@ The following are quotes that help me deal with this aspect of life. Enjoy :)
 - “The most beautiful form of mastery is the art of letting go.” - Claudia Gray
 - "Difficult to see. Always in motion is the future." - Yoda
 -  "Sometimes we must let go of our pride and do what is requested of us." - Padm
+- “Transformation is often more about unlearning than learning.” - Richard Rohr
 
 ## Fear
 - “Fear is the path to the dark side. Fear leads to anger; anger leads to hate; hate leads to suffering. I sense much fear in you.” — Yoda
+- "but joy can be stripped from life if we view life through a lens of fear." - Sherianna Boyle
 
 ## Confidence
 - "You must expect great things of yourself before you can do them." - Michael Jordan
 - “Stop comparing yourself with others. If they are good at something, you too are good at something else. Self-confidence is not measured by your own capabilities versus that of others, but by your own needs.” - Stephen Richards
 - “Self-confidence is contagious.” - Stephen Richards
 - "Great, kid. Don't get cocky." - Han Solo
+
+## Emotions
+- "Our heart’s desire lies within the processing of raw emotions" - Sherianna Boyle
 
 ## Patience
 - "Patience you must have, my young Padawan." - Yoda
