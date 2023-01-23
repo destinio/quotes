@@ -1,9 +1,9 @@
 # Inspirational Quotes
 ![](quoteback.png)
 
-As a leader in my field I deal with and help others with the following areas. I love using quotes as examples to get myself and others motivated.
+As a leader in my field I work and impact others everyday. I want to share some of my favorite quotes from people that have inspired me over the years. I do this in a hope to give others insite into how I tick, lol.
 
-We are always dealing with **change** in work and in our everyday lives. A lot of the time failure is a result of said change and I believe we should all welcome change because it gives us opportunity to fail and we can not succeed with out failing, in most cases ;)
+We are always dealing with **change** in work and in our everyday lives. A lot of the time failure is a result of said change and I believe we should all welcome. It gives us opportunity to fail and we can not succeed with out failing or from the failures of others ;)
 
 The following are quotes that help me deal with this aspect of life. Enjoy :)
 
@@ -42,11 +42,12 @@ The following are quotes that help me deal with this aspect of life. Enjoy :)
 - "Patience you must have, my young Padawan." - Yoda
 
 ## Success
-- "To be successful, you have to be selfish, or else you never achieve. And once you get to your highest level, then you have to be unselfish. Stay reachable. Stay in touch. Don't isolate." - Michael Jordan
+- "However difficult life may seem, there is always something you can do and succeed at." - Stephen Hawking
 - "If you want to be successful in a particular field, perseverance is one of the key qualities." - George Lucas
 
 ## Work
 - "My body could stand the crutches but my mind couldn't stand the sideline." - Michael Jordan
+- ""Work gives you meaning and purpose, and life is empty without it." - Stephen Hawking
 - “There’s always a bigger fish.” — Qui-Gon Jinn
 
 ## Teamwork
@@ -71,6 +72,7 @@ The following are quotes that help me deal with this aspect of life. Enjoy :)
 
 ## Dealing with People
 - "The ability to speak does not make you intelligent." - Qui-Gon Jinn
+- "I have noticed even people who claim everything is predestined, and that we can do nothing to change it, look before they cross the road." - Stephen Hawking
 
 ## Links
 - and awesome list of MJ quotes - https://www.inc.com/benjamin-p-hardy/23-michael-jordan-quotes-that-will-immediately-boost-your-confidence.html
